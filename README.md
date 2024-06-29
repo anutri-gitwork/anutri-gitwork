@@ -3,9 +3,8 @@
 - 🌱 I’m currently learning ... Coding <theres alot to explore>
 - 💞️ I’m looking to collaborate on ... -currently nothing-
 - 📫 How to reach me ... {anutri-gitwork}
-- 😄 Pronouns: ... she/her
-- ⚡ Fun fact: ...
--  <I love spending time on my pc than people>
+- 😄 Pronouns: ... Wallmart bag :)
+- ⚡ Fun fact: . <I love spending time on my pc than people>
 
 <!---
 anutri-gitwork/anutri-gitwork is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
