@@ -9,7 +9,7 @@
 
 - ⚡ Fun fact **Coding+Music = Lethal combo**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: anutri-gitwork</h3>
 <p align="left">
 </p>
 
