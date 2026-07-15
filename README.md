@@ -9,7 +9,8 @@
 
 - ⚡ Fun fact **Coding+Music = Lethal combo**
 
-<h3 align="left">Connect with me: anutri-gitwork</h3>
+<h3 align="left">Connect with me via linkedin: anutri-gitwork <br>
+Connect with me via IG: just.____.annu</h3>
 <p align="left">
 </p>
 
